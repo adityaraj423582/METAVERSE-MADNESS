@@ -1,4 +1,4 @@
 # METAVERSE-MADNESS
 
 
-![Chat Application](https://i.ibb.co/sbSHWH0/Thumbnail-1.png)
+![Chat Application](https://ibb.co/WzG1drn/Thumbnail-1.png)
